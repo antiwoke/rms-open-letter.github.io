@@ -1,3 +1,8 @@
+Not everyone will agree with your toxic ideology, or use the same new-speak you do or have the same opinions. Why is this such a big deal? Are you incapable to deal with diversity? It sure looks that way. Have you ever wondered why only people following the religion of wokeness feel entitled to de-platformed/censor/destroy other peoples lives? I really hope you'll be on the receiving end of this one day, you hateful, no-good, authoritarian scumbags.
+
+Lets be honest, he is guilty of crimes against the woke religion.
+
+
 ---
 title: An open letter to remove Richard M. Stallman from all leadership positions
 description: We, the undersigned, call for the entire Board of the FSF to step down and for Richard M. Stallman to be removed from all leadership positions. We will not continue suffering his behavior, giving him a leadership role, or otherwise holding him and his hurtful and dangerous ideology as acceptable.
